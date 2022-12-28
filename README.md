@@ -1,3 +1,3 @@
 # liyana\
 hello liyana
-how are yhou baby gulr <3
+how are you baby gulr <3
